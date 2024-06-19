@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @thora0613
+- 👀 I’m interested in reading both fiction and non-fiction
+- 🌱 I’m currently learning Japanese and Computer science
